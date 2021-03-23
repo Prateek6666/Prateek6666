@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prateek6666
-- 👀 I’m interested in Cooding
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning Game Designing 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mail me:p7111804@gmail.com
